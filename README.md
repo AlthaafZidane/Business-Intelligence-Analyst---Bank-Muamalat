@@ -2,7 +2,7 @@
 #### Virtual Internship Experience : Bank Muamalat – Business Intelligence Analyst
 #### Author : Althaaf Athaayaa Daffa Qushayyizidane
 
-![HI](https://img.freepik.com/free-photo/brand-corporate-business-planning-marketing-management-concept_53876-122455.jpg?w=826&t=st=1704174303~exp=1704174903~hmac=2575cb908d042dd3461d15a822c01e5806e09944d740403e2680d34f56007248)
+![HI](PICT/5.jpg)
 <br>
 <br>
 
